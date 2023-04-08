@@ -1,1 +1,1 @@
-# TARGETT-Turkiye
+# TARGETT
